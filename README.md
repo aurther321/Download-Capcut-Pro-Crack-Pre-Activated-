@@ -1,4 +1,4 @@
-# Download-Capcut-Pro-Pre-Activated-
+# Download-Capcut-Pro-Crack-Pre-Activated
 
 ![image](https://github.com/user-attachments/assets/36ebe684-07c3-439a-ab48-117d72b4186b)
 
